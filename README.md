@@ -8,5 +8,3 @@ If you want to partecipate to the challenge this is the link: https://adventofco
 ### Merry Christmas! :D
 
 
-
-https://adventofcode.com/
