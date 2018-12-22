@@ -8,3 +8,27 @@ If you want to partecipate to the challenge this is the link: https://adventofco
 ### Merry Christmas! :D
 
 
+
+
+                              *   
+                            _.|,_   
+                             '|`   
+                             / \
+                            /`,o\
+                           /_* ~_\
+                           / o .'\
+                          /_,~' *_\
+                          /`. *  *\
+                         /   `~. o \
+                        /_ *    `~,_\
+                        /   o  *  .~'\
+                       / *    .~~'  o\
+                      /_,.~~'`    *  _\
+                      /`~..  o        \
+                     / *   `'~..   *   \
+                    /_     o    ``~~.,,_\
+                    /  *      *     ..~'\
+                   /*    o   _..~~`'*   o\
+                   `-.__.~'`'   *   ___.-'
+                         ":-------:"
+                           \_____/
